@@ -3,7 +3,7 @@
 Need help with Card Detective? We're here to help.
 
 ## Contact
-Email: [support.carddetective.corral718@slmail.me](mailto:support.carddetective.corral718@slmail.me)
+Email: [carddetectivesupport.uncommon500@slmail.me](mailto:carddetectivesupport.uncommon500@slmail.me)
 
 ## Frequently Asked Questions
 
