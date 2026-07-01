@@ -3,7 +3,7 @@
 Need help with Card Detective? We're here to help.
 
 ## Contact
-Email: [carddetectivesupport.uncommon500@slmail.me](mailto:carddetectivesupport.uncommon500@slmail.me)
+Email: [support.carddetective.garnish113@slmail.me](mailto:support.carddetective.garnish113@slmail.me)
 
 ## Frequently Asked Questions
 
